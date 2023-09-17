@@ -1,2 +1,2 @@
 # Полный цикл расчета силовых трансформаторов
-https://drive.google.com/file/d/1OD5x6l-eJNq-Tmf3aks9UOjB9X2BViLa/view?usp=drive_link
+https://drive.google.com/file/d/1AsgJAB9N2IcwuFnoD37bVX5xaOae8jgu/view?usp=sharing
